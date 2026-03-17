@@ -1,0 +1,1 @@
+Sorry sir , amar mid exam er jonno sob kichu theke pichiye gechi and mid er por accident korechilam er jonno onk osushto chilam . sob kichu theke pichiye porechi . er age regular chilam . please consider korben . 
